@@ -1,4 +1,4 @@
-<sup>📒 Readme ver 1.0 23.11.2025 22:30<sup/>
+<sup>📒 Readme ver 1.0 23.11.2025 14:15<sup/>
 
 
 
